@@ -8,7 +8,7 @@ Before you proceed to use or reference any materials from this repository for yo
 
 First, Adhere to your institution's policies: Familiarize yourself with your academic institution's policies on plagiarism and follow them diligently. Failure to respect these guidelines may have serious consequences for your academic and professional future. Please exercise good judgment, integrity, and responsibility when using this repository as a reference.
 
-All the work had been graded and teach by Professor Deewang Bhamidipati. 
+All the work had been graded and teach by Professor Maria Alejandra Ramirez Luna. 
 
 Thank you for your understanding and cooperation.
 
